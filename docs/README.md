@@ -7,4 +7,4 @@
 > 多一份默默耕耘，少一份浮躁：
 
 
-![psc (2).jfif](https://tva1.sinaimg.cn/large/005Q1GhGly1h8lwbt1jrjj34mo334hdw.jpg)
+![psc (2).jfif](https://tva1.sinaimg.cn/large/005Q1GhGly1h8eal8mqqqj30xc0motmc.jpg)
